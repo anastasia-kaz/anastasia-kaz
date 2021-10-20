@@ -9,8 +9,8 @@
 
 Написать мне: почта - anastasia-kaz@mail.ru
 
-              https://www.linkedin.com/in/anastasia-kaz/
+https://www.linkedin.com/in/anastasia-kaz/
               
-              Telegram - @anastasia_kaz1
+Telegram - @anastasia_kaz1
               
 Minsk, Belarus
